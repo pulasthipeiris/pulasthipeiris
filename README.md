@@ -1,1 +1,1 @@
-👋 Hi, I’m @pulasthipeiris
+👋 Hi, I’m Pulasthi
